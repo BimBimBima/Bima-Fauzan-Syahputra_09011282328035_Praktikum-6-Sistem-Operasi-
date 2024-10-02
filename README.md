@@ -1,0 +1,1 @@
+# Bima-Fauzan-Syahputra_09011282328035_Praktikum-6-Sistem-Operasi-
